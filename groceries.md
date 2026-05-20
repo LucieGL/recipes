@@ -1,0 +1,1 @@
+tab with prices in dif markets
